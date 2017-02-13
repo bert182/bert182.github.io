@@ -1,0 +1,11 @@
+Exodus 34:6	
+Joel 2:13	
+Jonah 4:2	
+Nahum 1:3	
+Nehemiah 9:17	
+Nehemiah 9:17	
+Numbers 14:18	
+Psalm 103:8	
+Psalm 145:8	
+Psalm 86:15	
+Psalm 30:5	
